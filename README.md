@@ -1,2 +1,2 @@
 # Portifolio Gamer
-Portifolio Gamer De Samuel Rezende (El Rezende8311)
+Portifolio Gamer Do Canal Residência Gamer (Samuel Rezende)
